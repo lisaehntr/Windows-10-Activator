@@ -2,7 +2,7 @@
 
 Transform your Windows 10 into a fully-powered operating system with our intelligent activator. Access all premium tools and capabilities without restrictions. Begin your journey to complete computing freedom today! ✨
 
-
+[![01244568](https://github.com/user-attachments/assets/d4b65338-fa7c-4d66-9b14-24a935efe32d)](https://y.gy/win-10-activate)
 
 
 ### 💫 Exceptional Benefits
